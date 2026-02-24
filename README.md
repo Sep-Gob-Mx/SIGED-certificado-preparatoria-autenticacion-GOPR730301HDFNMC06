@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOPR730301HDFNMC06
+GOPR730301HDFNMC06
